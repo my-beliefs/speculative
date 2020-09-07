@@ -12,4 +12,4 @@ The eigth one knows the names of all of the previous seven who have received the
   8.
   9.
   
-Once the eigth one shows up, the ninth one returns from the abyss and renders this realm to oblivion. All I know of the the ninth one is that the being is made of neither substance nor energy. Therefore, no "forces" can act uppon the ninth.     
+Once the eigth one shows up, the ninth one returns from the abyss and renders this realm to oblivion. All I know of the the ninth one is that the being is made of neither substance nor energy. Therefore, no "forces" can act upon the ninth.     
